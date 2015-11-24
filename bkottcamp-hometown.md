@@ -1,1 +1,1 @@
-Wecome to my hometown.
+Welcome to my hometown.
